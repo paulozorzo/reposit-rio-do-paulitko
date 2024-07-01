@@ -1,1 +1,1 @@
-# reposit-rio-do-paulitko
+# repositorio-do-paulitko
